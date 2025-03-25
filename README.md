@@ -1,1 +1,21 @@
-# WhoAmI
+# Hi there! 👋
+
+🚀 I'm **Mustafa** 
+
+⚡ Entrepreneur & Content Creator
+
+## 🎓 Education
+I'm currently studying **Computer Engineering** at **Boğaziçi University** 📚
+
+## 💼 Professional
+☕️ Full-Time Content Creator
+⚡ Building @xakademi, @mustafaocakxyz and more in the way
+
+## 🎯 Interests
+☕️ Caffeine
+💰 Money, in general
+📝 STEM, but only the cool parts
+⚔️ Albion Online, solo player
+
+## 📬 Let's Connect!
+Want to chat? Feel free to reach out to me on **[Your Socials]**! Let's build something amazing together! ✨
