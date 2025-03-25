@@ -10,6 +10,7 @@ I'm currently studying **Computer Engineering** at **Boğaziçi University** �
 ## 💼 Professional
 ☕️ Full-Time Content Creator
 ⚡ Building @xakademi, @mustafaocakxyz and more in the way
+💻 Freelancer (Web Design & Development, Social Media...)
 
 ## 🎯 Interests
 ☕️ Caffeine
