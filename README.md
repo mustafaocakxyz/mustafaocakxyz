@@ -16,6 +16,3 @@ I'm currently studying **Computer Engineering** at **Boğaziçi University** �
 💰 Money, in general
 📝 STEM, but only the cool parts
 ⚔️ Albion Online, solo player
-
-## 📬 Let's Connect!
-Want to chat? Feel free to reach out to me on **[Your Socials]**! Let's build something amazing together! ✨
