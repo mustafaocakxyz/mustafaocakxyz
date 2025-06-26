@@ -16,4 +16,3 @@
 - ☕️ Caffeine
 - 💰 Money, in general
 - 📝 STEM, but only the cool parts
-- ⚔️ Albion Online, solo player
