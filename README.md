@@ -9,8 +9,7 @@
 
 ## 💼 Professional
 - ☕️ Full-Time Content Creator
-- ⚡ Building @xakademi, @mustafaocakxyz and more in the way
-- 💻 Freelancer (Web Design & Development, Social Media...)
+- ⚡ Building @xakademi
 
 ## 🎯 Interests
 - ☕️ Caffeine
