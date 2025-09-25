@@ -9,7 +9,7 @@
 
 ## 💼 Professional
 - ☕️ Full-Time Content Creator
-- ⚡ Creating @xakademi and building @xcreative
+- ⚡ Creating @xakademi and building @holex
 
 ## 🎯 Interests
 - ☕️ Caffeine
