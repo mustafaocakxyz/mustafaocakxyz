@@ -9,8 +9,7 @@
 
 ## 💼 Professional
 - ☕️ Full-Time Content Creator
-- ⚡ Creating @xakademi
-- ⚡ Building Feyn App
+- ⚡ Creating and building @xakademi
 
 ## 🎯 Interests
 - ☕️ Caffeine
